@@ -10,6 +10,11 @@
 
 ## Shivani Tangellapally
 
+ * reading books
+ 
+ * watching cricket
+ 
+ * eating
 
 
 
