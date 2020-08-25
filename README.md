@@ -18,3 +18,6 @@
 
 ## Sri Vasavi Vipparla
 
+* Dancing
+* Cooking
+* Movies
