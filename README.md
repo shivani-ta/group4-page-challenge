@@ -16,11 +16,6 @@
  
  * eating
  
- * browsing
- 
- * writing
- 
- * listening songs
 
 
 
