@@ -15,6 +15,12 @@
  * watching cricket
  
  * eating
+ 
+ * browsing
+ 
+ * writing
+ 
+ * listening songs
 
 
 
